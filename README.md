@@ -19,4 +19,5 @@ Me entusiasma aprender constantemente, resolver problemas complejos y aportar mi
 
 ---
 
+
 > _"La innovación y el trabajo en equipo son las claves para crear soluciones extraordinarias."_
